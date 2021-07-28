@@ -5,4 +5,4 @@ This game was created by @Vishwaje31(@Captain_Veer)
 
 Special thanks to mentor codemonkey for his guidance.
 
-Thanks for downloading\ play.
+Thanks for downloading snd play.
